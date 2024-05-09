@@ -1,3 +1,4 @@
-![078575B9](https://github.com/PoetNeko/-/assets/169263753/676efc4d-dc90-485b-9cbe-1daf194a8512)# -
+资本学校你![07871ABE](https://github.com/PoetNeko/-/assets/169263753/8d2b2b83-c652-4b12-8ca5-20985e7f967d)死了
+
 学习中
-傻逼晚自习网，学你馬
+———————————————— 傻逼晚自习网，学你妈
